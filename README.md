@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AjaxRacing
-- 👀 I’m interested in Racing car 
+- 👀 I’m interested in Racing cars 
 - 🌱 I’m currently learning in school
 - 💞️ I’m looking to collaborate on blooket hacks
 - 📫 dont try to reach me
